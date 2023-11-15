@@ -1,10 +1,22 @@
 kfdknf#this is a spotify dashboard of my spotify data
-##
+###
 ckd
 klkfkf
 knlml
 lkklkjjddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-klklk
+klklkhhhhhhhhhhhhhhhh\
+j
+jjj
+k
+k
+k
+
+jjiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
+9sj
+djsiodj
+sjijdis
+sj99999902j
+wnissns
 klklnrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrfffffffffffffffffffffffffffffffffffffffff
 nnncdvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
 nkkdjskskdkdkdkdhhhhhhhhhhbs
@@ -46,3 +58,4 @@ d
 ddd
 d
 d
+###
